@@ -1,4 +1,4 @@
- 👋 Hi, I’m @sandja12
+ 👋 Hi, I’m Jakob Sandrisser
 - 📫 How to reach me  at email jakobsandrisser@gmail.com
 
 <!---
